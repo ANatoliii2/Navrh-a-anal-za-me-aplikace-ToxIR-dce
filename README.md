@@ -1,0 +1,1 @@
+# Navrh-a-anal-za-me-aplikace-ToxIR-dce
